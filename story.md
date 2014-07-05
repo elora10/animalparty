@@ -20,13 +20,14 @@ carefully ducky! keep your balance
 ![the duck's friends took turns quacking](http://www.millan.net][IMG]http://www.millan.net/anims/gifs/ducks.gif)
 ![shooting duck](http://www.somegif.com/gifs/13918672231954283923.GIF)
 this duck has had too much to drink
+![](http://seawolff.github.io/The-Answer-To-Life/gifs/puppy-duck.gif)
 
 ![oh duck has had too much to drink](http://img1.wikia.nocookie.net/__cb20131014081207/degrassi/images/a/ac/Cute_duck.gif)
 ![the doctor duck has come to visit the duck who has had too much to drink]
 (http://www.clipartbest.com/cliparts/dT6/gB4/dT6gB4pT9.gif)
 this duck was mistaken for a dirty patch of carpet
 ![angrydaffy](http://mrwgifs.com/wp-content/uploads/2013/08/Daffy-Duck-Fires-a-Warning-Shot-In-Looney-Tunes-Gif.gif)daffy is angry
-
+![dancea duck ](http://rs143.pbsrc.com/albums/r154/kemelton/duck.gif~c200)
 ![A cat kicking itself](http://gph.is/XN67J3)
 
 ![this duck was mistaken for a dirty patch of carpet](http://a.gifb.in/092013/1378748336_vacuuming_a_duck.gif)
@@ -36,6 +37,6 @@ DUCK VADER
 ![DUCK VADER](http://3.bp.blogspot.com/-VF6QZLC7ckQ/UEjUaCVxbRI/AAAAAAAABzU/pTGIMmQ37Bg/s1600/weh.jpg)
 Arghhh THE ENEMY
 ![the enemy](http://img.pandawhale.com/post-9764-Grumpy-Cat-clapping-gif-aim9.gif)
-
+![](http://img2.wikia.nocookie.net/__cb20140110120416/glee/images/1/1d/Dolan_duck_28e47_3852910.gif)
 
 <!--end team ducks-->
