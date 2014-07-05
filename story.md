@@ -36,6 +36,6 @@ DUCK VADER
 ![DUCK VADER](http://3.bp.blogspot.com/-VF6QZLC7ckQ/UEjUaCVxbRI/AAAAAAAABzU/pTGIMmQ37Bg/s1600/weh.jpg)
 Arghhh THE ENEMY
 ![the enemy](http://img.pandawhale.com/post-9764-Grumpy-Cat-clapping-gif-aim9.gif)
-
+![](http://37.media.tumblr.com/tumblr_m47afjvoPR1qhfc59o1_500.gif)
 
 <!--end team ducks-->
