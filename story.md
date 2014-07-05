@@ -39,7 +39,7 @@ Arghhh THE ENEMY
 ![](http://37.media.tumblr.com/tumblr_m47afjvoPR1qhfc59o1_500.gif)
 ![](http://media.giphy.com/media/KcxzKTaKcGuZi/giphy.gif)
 ![](http://i1.fails.net/fails/perfect-daffy-duck-loop-gif_original.gif)
-![](http://animated-gifs.org/wp-content/uploads/2012/01/daisy-duck-015.gif0
+![](http://animated-gifs.org/wp-content/uploads/2012/01/daisy-duck-015.gif0)
 
 
 
