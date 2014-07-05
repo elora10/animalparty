@@ -38,4 +38,11 @@ Arghhh THE ENEMY
 ![the enemy](http://img.pandawhale.com/post-9764-Grumpy-Cat-clapping-gif-aim9.gif)
 ![](http://37.media.tumblr.com/tumblr_m47afjvoPR1qhfc59o1_500.gif)
 ![](http://media.giphy.com/media/KcxzKTaKcGuZi/giphy.gif)
+![](http://i1.fails.net/fails/perfect-daffy-duck-loop-gif_original.gif)
+
+
+
+
+
+
 <!--end team ducks-->
